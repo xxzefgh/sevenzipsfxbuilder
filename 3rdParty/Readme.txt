@@ -1,6 +1,3 @@
-опнцпюллш, пюяонкнфеммхе б дюммнл оюойе ъбкъчряъ аеяокюрмшлх х наыеднярсомшлх.
-бяе юбрнпяйхе опюбю мю щрхл опнцпюллюл опхмюдкефюер ху юбрнпюл.
-
 PROGRAMS LOCATED IN THIS FOLDER ARE FREE AND AVAILABLE(FOR ALL).
 ALL COPYRIGHT ON THESE PROGRAMS BELONGS TO THEIR AUTHORS.
 
